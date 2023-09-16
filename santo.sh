@@ -188,6 +188,24 @@ sausage and beer santosh? haramtosh.
 cuda gpu santosh? nvidiantosh.
 german enlightenment philosopher santosh? immanuel kantosh. 
 buzz lightyear santosh? to infinity and beyondtosh.
+japanese red bean paste bun superhero santosh? anpanmantosh.
+freaky fast santosh? jimmy johntosh.
+jewish holiday santosh? hannukahntosh.
+$1.50 hotdog and soda santosh? costcosh.
+cancer santosh? tumorala.
+dangerous industrial santosh? santOSHA violation.
+crispy, sweet, layered greek dessert santosh? baklavantosh.
+phone insurance and repair santosh? asuriontosh.
+on first santosh? who's on tosh.
+the name's tosh? bondtosh.
+baked good santosh? cinnabontosh.
+phone santosh? motorolantosh.
+sigmagrindsetosh. I don't care if rhymes.
+film director santosh? quentin tarantitosh.
+
+
+
+
 
 
 [push me
